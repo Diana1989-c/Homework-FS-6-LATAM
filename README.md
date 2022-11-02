@@ -1,1 +1,0 @@
-# Homework-FS-6-LATAM
